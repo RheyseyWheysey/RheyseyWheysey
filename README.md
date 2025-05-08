@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with everything
 - 💬 Ask me about nothing pls
 - 📫 How to reach me: 
-😄 Pronouns: him
-⚡ Fun fact: i've eaten an apple before
+- 😄 Pronouns: him
+- ⚡ Fun fact: i've eaten an apple before
